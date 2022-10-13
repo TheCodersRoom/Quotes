@@ -57,3 +57,5 @@
 > Don't judge each day by the harvest you reap but by the seeds that you plant.
 
 > Just accept the reality and move on.
+
+> The way to get started is to quit talking and begin doing.
