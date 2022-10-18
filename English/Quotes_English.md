@@ -68,3 +68,5 @@
 
 > Life is what happens when you're busy making other plans
 
+>If you want to be strong
+learn how to fight alone
