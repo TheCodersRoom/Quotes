@@ -52,7 +52,7 @@
 
 > If you can dream it, you can do it.
 
->Trust yourself that you can do it and get it. ―Baz Luhrmann.
+> Trust yourself that you can do it and get it. ―Baz Luhrmann.
 
 > More smiling, less worrying. More compassion, less judgment. More blessed, less stressed. More love, less hate.
 
@@ -68,20 +68,20 @@
 
 > Life is what happens when you're busy making other plans
 
->If you want to be strong
+> If you want to be strong
 
->learn how to fight alone
+> learn how to fight alone
 
 > “Measuring programming progress by lines of code is like measuring aircraft building progress by weight.” 
 
->"Wake upto reality,nothing good ever happens in this world"
+> "Wake upto reality,nothing good ever happens in this world"
 
->"Follow the 20 minute rule"
+> "Follow the 20 minute rule"
 
->"Just Do it"
+> "Just Do it"
 
->"Maturing is realizing life isn't fair"
+> "Maturing is realizing life isn't fair"
 
->"Time never waits for anyone but it isn't too late to start"
+> "Time never waits for anyone but it isn't too late to start"
 
 > “One: Demonstrations always crash. And two: The probability of them crashing goes up exponentially with the number of people watching.”
