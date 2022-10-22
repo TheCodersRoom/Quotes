@@ -72,6 +72,8 @@
 
 >learn how to fight alone
 
+> “Measuring programming progress by lines of code is like measuring aircraft building progress by weight.” 
+
 >"Wake upto reality,nothing good ever happens in this world"
 
 >"Follow the 20 minute rule"
