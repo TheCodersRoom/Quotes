@@ -85,3 +85,6 @@
 > "Time never waits for anyone but it isn't too late to start"
 
 > “One: Demonstrations always crash. And two: The probability of them crashing goes up exponentially with the number of people watching.”
+
+> "There are only two hard things in Computer Science: cache invalidation and naming things." - Phil Karlton
+
