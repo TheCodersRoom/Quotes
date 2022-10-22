@@ -69,4 +69,7 @@
 > Life is what happens when you're busy making other plans
 
 >If you want to be strong
-learn how to fight alone
+
+>learn how to fight alone
+
+>"Wake upto reality,nothing good ever happens in this world" 
