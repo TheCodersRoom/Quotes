@@ -79,3 +79,5 @@
 >"Just Do it"
 
 >"Maturing is realizing life isn't fair"
+
+>"Time never waits for anyone but it isn't too late to start"
