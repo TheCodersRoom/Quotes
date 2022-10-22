@@ -77,3 +77,5 @@
 >"Follow the 20 minute rule"
 
 >"Just Do it"
+
+>"Maturing is realizing life isn't fair"
