@@ -72,4 +72,7 @@
 
 >learn how to fight alone
 
->"Wake upto reality,nothing good ever happens in this world" 
+>"Wake upto reality,nothing good ever happens in this world"
+
+>"Follow the 20 minute rule"
+
