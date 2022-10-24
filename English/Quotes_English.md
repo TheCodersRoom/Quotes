@@ -97,3 +97,5 @@
 > "Man needs his difficulties because they are necessary to enjoy success."
 
 > "You have to dream before your dreams can come true."
+
+> "Small aim is a crime; have great aim."
