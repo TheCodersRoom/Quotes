@@ -93,3 +93,5 @@
 > "Don't be afraid to give up the good to go for the best."
 
 > "If you want to shine like a sun, first burn like a sun."
+
+> "Man needs his difficulties because they are necessary to enjoy success."
