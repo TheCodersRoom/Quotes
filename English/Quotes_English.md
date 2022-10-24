@@ -91,3 +91,5 @@
 > "The best way to find out what we truly need is to look inside ourselves and find the answers." - Unknown 
 
 > "Don't be afraid to give up the good to go for the best."
+
+> "If you want to shine like a sun, first burn like a sun."
