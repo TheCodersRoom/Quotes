@@ -99,3 +99,5 @@
 > "You have to dream before your dreams can come true."
 
 > "Small aim is a crime; have great aim."
+
+> "The youth need to be enabled to become job generators from job seekers."
