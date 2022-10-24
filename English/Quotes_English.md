@@ -95,3 +95,5 @@
 > "If you want to shine like a sun, first burn like a sun."
 
 > "Man needs his difficulties because they are necessary to enjoy success."
+
+> "You have to dream before your dreams can come true."
